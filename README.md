@@ -4,6 +4,6 @@
 
 There are currently no contents available here, as this page is specifically created for the [**Sunlit Spectrum**](http://sunlitspectrum.fastdropgaming.de/) project.
 
-If you're interested in the [**Sunlit Spectrum**](http://sunlitspectrum.fastdropgaming.de/) project, please check out our [Instagram](http://sunlitspectrum.fastdropgaming.de/) site.
+If you're interested in the **Sunlit Spectrum** project, please check out our [Instagram](http://sunlitspectrum.fastdropgaming.de/) site.
 
 Thank you for your understanding!
